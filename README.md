@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently in my final your of my Bachelors Degree. Just building and breaking some things<br>
+I am currently in my final year of my Bachelors Degree. Just building and breaking some things<br>
 
 
 ## 🌐 Socials:
